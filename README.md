@@ -1,3 +1,2 @@
-# maxnagarajan.github.io
+# Max Nagarajan
 
-Testing... testing
